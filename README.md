@@ -2,8 +2,10 @@
 ⠀⠀![text](https://i.imgur.com/6A5wuAe.gif)
 ‎⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀![div](https://i.imgur.com/p6rjbS1.png)
 
-Hiya! this github is UNDER CONRTSUCTION!!
-Look forward 2 a ABSOLUTE peak PROFILE
+<p align="center">
+  ︵︵⠀⠀zix / hyperlaser ⠀⠀.
+  ⠀ she / her ⠀.⠀⠀aroace⠀⠀ (^_^)
+</p>
 
   
 
