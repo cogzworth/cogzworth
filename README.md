@@ -7,6 +7,11 @@
   ⠀ she / her ⠀.⠀⠀aroace⠀⠀ (^_^)
 </p>
 
+<p align="center">
+c+h always ! int freely 
+   
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![emoji](https://i.imgur.com/R0oYYjK.gif)⠀best seen on pc⠀![e2](https://i.imgur.com/vztky60.gif)
+
   
 
 
