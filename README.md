@@ -10,7 +10,7 @@
 <p align="center">
 c+h always ! int freely 
   
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![img](https://i.imgur.com/R0oYYjK.gif)⠀best seen on pc⠀![e2](https://i.imgur.com/vztky60.gif)⠀⠀⠀⠀⠀⠀
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![img](https://i.imgur.com/R0oYYjK.gif)⠀best seen on pc⠀![e2](https://i.imgur.com/vztky60.gif)⠀⠀⠀⠀⠀⠀
 
 
 
