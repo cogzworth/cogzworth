@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-c+h always ! int freely 
+    ⠀⠀⠀⠀⠀ c+h always ! int freely 
   ⠀best seen on laptop⠀!⠀⠀⠀⠀⠀
 </p>
 
