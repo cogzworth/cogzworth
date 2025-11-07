@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<img width="600" height="650" alt="gif sparkle text divider" src="https://i.imgur.com/6A5wuAe.gif" />
+<img width="500" height="175" alt="gif sparkle text divider" src="https://i.imgur.com/6A5wuAe.gif" />
 
 
 
