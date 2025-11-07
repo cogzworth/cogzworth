@@ -4,24 +4,23 @@
 
 <div align="center">
 
-⠀⠀![text](https://i.imgur.com/6A5wuAe.gif)
+<img width="600" height="650" alt="gif sparkle text divider" src="https://i.imgur.com/6A5wuAe.gif" />
 
 
-![img](https://i.imgur.com/R0oYYjK.gif) 
+
 
 ![div](https://i.imgur.com/p6rjbS1.png) 
 
-![e2](https://i.imgur.com/vztky60.gif)
 
-<p align="center">
-  ︵︵⠀⠀zix / hyperlaser ⠀⠀.
+ ![img](https://i.imgur.com/R0oYYjK.gif) 
+ ︵︵⠀⠀zix / hyperlaser ⠀⠀.
   ⠀ she / her ⠀.⠀⠀aroace⠀⠀ (^_^)
-</p>
 
-<p align="center">
-    ⠀⠀⠀⠀⠀ c+h always ! int freely 
-  ⠀best seen on laptop⠀!⠀⠀⠀⠀⠀
-</p>
+
+ c+h always ! int freely 
+  ⠀best seen on laptop⠀! ![e2](https://i.imgur.com/vztky60.gif)
+⠀⠀⠀⠀⠀
+
 
 
 
